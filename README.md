@@ -3,16 +3,5 @@
 
 ## . 🔮 : hello wrld ! ꈍᴗꈍ : ✮
 
-
-∘₊✧──────✧₊∘
-
-buster's self proclaimed no.1 fan ^_^ /nsrs
-
-  i rly luv fangster.like actually 
-  
-euhh read my strawpage ! 
-
- harold.tdi on dizzycord ;D
- 
-  ∘₊✧──────✧₊∘
+https://sl1nkyzz.straw.page/
 
