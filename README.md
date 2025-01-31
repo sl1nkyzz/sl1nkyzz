@@ -1,5 +1,4 @@
-
-![image](https://github.com/user-attachments/assets/83e7c848-a710-4129-91d9-16288e212e07)
+![image](https://github.com/user-attachments/assets/f22362ab-e1c6-4aa9-b299-6d7e133b3cff)
 
 ## . 🔮 : hello wrld ! ꈍᴗꈍ : ✮
 
